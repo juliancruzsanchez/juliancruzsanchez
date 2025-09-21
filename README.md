@@ -5,7 +5,7 @@
 - 🤔 I’m looking for help with my home dashboard project.
 - 🔫 Also looking to grow my airsoft club.
 - 💬 Ask me about politics
-- 📫 How to reach me: calling me @ 970.408.0835 | Text first if this is first contact.
+- 📫 How to reach me: calling me @ 970.402.4444 | Text first if this is first contact.
 - 😄 Pronouns: he/him
 
 <!--
